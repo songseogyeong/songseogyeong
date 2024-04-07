@@ -1,3 +1,5 @@
+![KakaoTalk_20240402_015918830](https://github.com/songseogyeong/songseogyeong/assets/155418141/a066eff6-ca3e-4f5f-a838-df2cb1ba95c2)
+
 ### Hi there 👋
 
 <!--

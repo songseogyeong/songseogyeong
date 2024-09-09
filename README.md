@@ -1,6 +1,6 @@
 <div align="center">
   
-  ![KakaoTalk_20240402_015918830_01](https://github.com/songseogyeong/songseogyeong/assets/155418141/d19c4fe5-d670-4a04-a113-b1727b6fb6ff)
+  ![KakaoTalk_20240402_015918830](https://github.com/user-attachments/assets/254d69e1-f995-4214-b818-8574487a200d)
   
 </div>
 
